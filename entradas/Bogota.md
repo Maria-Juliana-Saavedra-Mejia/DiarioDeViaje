@@ -3,3 +3,7 @@
 ## Descripción
 
 Bogotá es la extensa capital en altura de Colombia
+
+## Recomendación
+
+Visitar el Teatro Colón neoclásico 
