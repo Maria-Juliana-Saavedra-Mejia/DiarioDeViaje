@@ -1,0 +1,16 @@
+## Roma, Italia
+
+## Descripción
+
+Roma, la capital de Italia, es una extensa ciudad cosmopolita que tiene a la vista casi 3,000 años de arte, arquitectura y cultura de influencia mundial. Las ruinas antiguas como las del Foro y el Coliseo evocan el poder del antiguo Imperio Romano. 
+
+## Recomendación
+
+Visitar la Basílica de San Pedro y los Museos del Vaticano
+
+## Foto
+![](data:image/jpeg;base64,/9j/4AAQSkZJRgABAQAAAQABAAD/2wCEAAkGBwgHBgkIBwgKCgkLDRYPDQwMDRsUFRAWIB0iIiAdHx8kKDQsJCYxJx8fLT0tMTU3Ojo6Iys/RD84QzQ5OjcBCgoKDQwNGg8PGjclHyU3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3Nzc3N//AABEIACYAOAMBIgACEQEDEQH/xAAaAAACAwEBAAAAAAAAAAAAAAAABQMEBgEC/8QAMRAAAQMDAgQFAwIHAAAAAAAAAQIDBAARIQUSEzFBUQYiYYGRFDJxI7EHQnKhotHw/8QAFwEBAQEBAAAAAAAAAAAAAAAABAIBBv/EACARAAICAgICAwAAAAAAAAAAAAECAAMEESFREjEiMvH/2gAMAwEAAhEDEQA/AN1L0LgR+K04ENtp3LDhskDrn96yD/iGYtX0ul7Utm/ncRuUq3VKTytjKvitZ4vlNxvC8kOvWS4tCEgqyvzAkfANYGHGkTUBS5CYcXzJBOFGwOb873FvW4pZyTrRMh8ceegI58NRHtYLjbrqVvtr/UO4Fak4su3bNr96uzf0W1QyNikq+0eYk9r9qR+GZum6BOQtUz6hT0ba+pA3q3Eg2z0wK0U3UdGdbS6mYyCU707TckdrdD6c6RVmHjyhrcIN6iuTCkJaDitqQsYSDm3evUNppBs55l8txXcAelTp1mI/H4YJDXVZZWBn1/ApjGj6HOfbYjyWkuEX2BzKvwDmljMUjRME2JbrUYSJmltaa5HiNOqkcPataTcE2znIoq5KjQdGhFxwpQo/YLXt7DJooyXou9czHxrD1Mp/ECYGIMRjgh1wu7gkG6gQMG3uayTsR5yMnjNhouJ/VU4qxQCOWSOuBSrw8rWobSRPZlPK4pUVKG/y7QAAT+D8071dC5Cm22uI4wtoOOJUkJCVAg7LfPWueZrQQvudUorYF2HPUXJbRHkRHEPs8JtSuMAATY32jkb2uOvSptBYZnvyIbjjcctrLjTyIoc3JAFkqv3JPsPXFqO1GLkdolgb4hC8g7VgHmO5sP8AjUP0moIgvvx2eG6CQlst+ZSBsxyN/wCatoaz6hTMvVDyWEjd1CI2ZhjtoeVtfdHDWtBI2BQGOWb2t2phJS29ZJj7Eu3KV8Qczw+h/qPx64WKa1ZtyYVoAQ4hCmt1glOMpv068+9eIMl9ER1Up9hLgSgJQdhNw2RyB6kJ+e1LYuPyEUoTqapHiaLpOhSGtbS5IlshX0SZR+4Y8lic565sDXKyHi1ganpUYNTIy323zuu4blBSO5PUCuVNdhZflwZN1ahvj6ksaLot7KakkjoQgj9gaYtQ9GS0BwninsW0UUU4KvUIHaPIUWPwkmM7IbbVmw2j2xU5hHh70zJCR7E/3ooqpUGoSltkmfIwq2Uj/dVdQ0JDzag88FoPdoXA7c6KKybqKD4QhKCi04hIULpvHyP8q5RRU+I6mmf/2Q==)
+
+## Informacion sobre Roma
+
+Caminar por las calles de Roma es caminar por la Historia. Se trata de uno de los destinos turísticos más populares del mundo, que permite, por no decir que impone, incesantes descubrimientos, gracias a la inmensidad de su patrimonio artístico. De hecho, alberga dos capitales en una sola ciudad: la capital italiana y la sede del Papa en el Vaticano, destino de peregrinación universal en la Piazza San Pietro.
