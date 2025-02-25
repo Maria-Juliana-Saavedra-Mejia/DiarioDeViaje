@@ -9,7 +9,6 @@ Cancún es una ciudad de México ubicada en la península de Yucatán que limita
 Visitar la Isla MujeresO
 
 ## Foto 
-
 ![](https://www.xcaret.com/assets/xcaret/landings/destinos/cancun.webp)
 
 ## Informacion sobre Cancun 
