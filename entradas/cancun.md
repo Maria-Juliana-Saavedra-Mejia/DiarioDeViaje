@@ -10,7 +10,7 @@ Visitar la Isla MujeresO
 
 ## Foto 
 
-![](https://www.xcaret.com/assets/xcaret/landings/destinos/isla.webp)
+![](https://www.xcaret.com/assets/xcaret/landings/destinos/cancun.webp)
 
 ## Informacion sobre Cancun 
 
