@@ -9,7 +9,7 @@ Barcelona, la capital cosmopolita de la región de Cataluña en España, es cono
 Visitar el Camp Nou
 
 ## Foto
-![](https://www.outdooractive.com/es/recorridos-por-la-ciudad/barcelona/recorridos-por-la-ciudad-en-barcelona/2527157/)
+![](https://www.barcelo.com/guia-turismo/wp-content/uploads/que-visitar-en-barcelona-1.jpg)
 
 ## Informacion sobre Barcelona
 
